@@ -1,0 +1,4 @@
+- Hi, I’m Vasu
+- Apparently I go by @apewithacomputer 
+- I’m interested in anything cs related
+- You can reach me through me email(apewithacomputer@gmail.com)
